@@ -11,10 +11,10 @@ Players can win up to **20,000× their bet**, thanks to features like Mystery Re
 ---
 
 ## 🔗 Try This Slot
-🎰 [for German Players ](https://k56thc2itt.com/?serial=47894&creative_id=1256&anid=SentinoDE&path=registration&retentionId=a8aecea0-2dac-41a0-82ca-59e0cf53f33f&utm_source=germany&utm_medium=Alina&utm_campaign=KingQONK&utm_term=SentinoDE)
-🎰 [for French Players ](https://k56thc2itt.com/?serial=47119&creative_id=1085&anid=SentinoFR&path=registration&retentionId=a8aecea0-2dac-41a0-82ca-59e0cf53f33f&utm_source=france&utm_medium=Alina&utm_campaign=KingQONK&utm_term=SentinoFR)
-🎰 [for Sweden Players ](https://k56thc2itt.com/?serial=53778&creative_id=1287&anid=SentinoSE&path=registration&retentionId=6ea75dae-5fbe-4550-b662-b83e4600a165&utm_source=sweden&utm_medium=Alina&utm_campaign=KingQONK&utm_term=SentinoSE)
-🎰 [for other countries Players ](https://k56thc2itt.com/?serial=53868&creative_id=1283&anid=SentinoFR&path=registration&retentionId=6ea75dae-5fbe-4550-b662-b83e4600a165&utm_source=france&utm_medium=Alina&utm_campaign=KingQONK&utm_term=SentinoFR)
+🎰 [for German Players ](https://k56thc2itt.com/?serial=47894&creative_id=1256&anid=SentinoDE&path=registration&retentionId=a8aecea0-2dac-41a0-82ca-59e0cf53f33f&utm_source=germany&utm_medium=Alina&utm_campaign=KingQONK&utm_term=SentinoDE) <br>
+🎰 [for French Players ](https://k56thc2itt.com/?serial=47119&creative_id=1085&anid=SentinoFR&path=registration&retentionId=a8aecea0-2dac-41a0-82ca-59e0cf53f33f&utm_source=france&utm_medium=Alina&utm_campaign=KingQONK&utm_term=SentinoFR) <br>
+🎰 [for Sweden Players ](https://k56thc2itt.com/?serial=53778&creative_id=1287&anid=SentinoSE&path=registration&retentionId=6ea75dae-5fbe-4550-b662-b83e4600a165&utm_source=sweden&utm_medium=Alina&utm_campaign=KingQONK&utm_term=SentinoSE) <br>
+🎰 [for other countries Players ](https://k56thc2itt.com/?serial=53868&creative_id=1283&anid=SentinoFR&path=registration&retentionId=6ea75dae-5fbe-4550-b662-b83e4600a165&utm_source=france&utm_medium=Alina&utm_campaign=KingQONK&utm_term=SentinoFR) <br>
 ---
 
 ## 📊 Game Info
