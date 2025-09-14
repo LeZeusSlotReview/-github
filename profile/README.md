@@ -2,6 +2,7 @@
 
 **Tags:** Le Zeus slot, Hacksaw Gaming, online slots, Zeus slot review, RTP, free spins, bonus round  
 ![Le Zeus Slot](./le-zeus-slot.png)
+
 ---
 
 ## 🎯 Overview
