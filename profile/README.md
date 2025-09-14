@@ -4,10 +4,6 @@
 
 ---
 
-![Le Zeus Slot](./le-zeus-slot.png)
-
----
-
 ## 🎯 Overview
 **Le Zeus** is a 6×5 slot by **Hacksaw Gaming**, built around Greek mythology with innovative mechanics and powerful payouts.  
 Players can win up to **20,000× their bet**, thanks to features like Mystery Reels, sticky respins, and multiple free spin modes.  
